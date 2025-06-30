@@ -1,1 +1,1 @@
-# tasmiya-khan
+we are studing about github
