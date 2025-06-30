@@ -1,1 +1,1 @@
-we are studing about github
+we are studying about github
